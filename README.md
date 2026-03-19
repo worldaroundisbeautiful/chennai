@@ -1,8 +1,3 @@
-# Complete Guide to 3 BHK Flats in Siruseri, Chennai: UDS Analysis & Price Comparison (2026)
-
-![Siruseri IT Corridor](https://images.unsplash.com/photo-1545324418-cc1a3fa10c00?w=1200)
-
-*Your comprehensive guide to buying premium 3 BHK apartments in Chennai's fastest-growing IT hub*
 
 ---
 
